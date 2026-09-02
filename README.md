@@ -1,0 +1,2 @@
+# DivineIntelligence
+Strona mojej myszki !!
